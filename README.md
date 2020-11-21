@@ -1,0 +1,2 @@
+# Emin
+Ağıl çox bahadır.
